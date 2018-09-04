@@ -2,5 +2,5 @@
 Just another repository
 
 
-Hello everybdy!
+Hello everybody!
 I am Ricardo from Peru. I like dance salsa and bachata. I wanna travel around the earth.
